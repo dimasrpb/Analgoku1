@@ -1,0 +1,2 @@
+# Analgoku1
+wajibdiisi
